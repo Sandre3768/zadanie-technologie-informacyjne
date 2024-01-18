@@ -1,0 +1,4 @@
+==================
+Honkai: Star Rail
+==================
+Honkai Star Rail is a turn-based RPG that focuses on the story of the Honkai, a race of mechanical beings who are slowly taking over Earth. The game provides players with a large cast of characters, each with their own unique playstyle and backstory. Players can customize their characters by equipping them with new weapons and accessories, which can then be upgraded to provide additional benefits in battle. Players can also complete puzzles and minigames in between battles, keeping gameplay from becoming monotonous or repetitive. Honkai Star Rail provides a level of depth and strategy to its gameplay that makes battles feel rewarding and challenging, without being overwhelming for novice players. The inclusion of puzzles and minigames adds variety to the gameplay without distracting from its focus on storytelling, which is essential for any visual novel.
